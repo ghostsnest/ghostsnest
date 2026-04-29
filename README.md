@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ[atabook](en.pronouns.page/@silksong)ㅤㅤ[straw](https://rentry.co/redmemory)ㅤㅤ[prns page](https://rentry.co/redmemory)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤc + h　ㅤㅤ♪　ㅤㅤw2i  (usually offtab)　₊　
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤc + h　ㅤㅤ♪　ㅤㅤw2i  (usually offtab)　₊　
  ‎ 
 
    ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎
