@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://ghostsnest.atabook.org)ㅤㅤ[straw](https://sealedvessels.straw.page)ㅤㅤ[prns page](https://en.pronouns.page/@silksong)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤc + h　ㅤㅤ♪　ㅤㅤw2i  (usually offtab)　₊　
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤmultifandom　ㅤㅤ♪　ㅤㅤfrqs open !!　₊　
  ‎ 
 
    ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎
