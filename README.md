@@ -4,7 +4,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://ghostsnest.atabook.org)ㅤㅤ[straw](https://sealedvessels.straw.page)ㅤㅤ[prns page](https://en.pronouns.page/@silksong)
+ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://ghostsnest.atabook.org)ㅤㅤ[rentry](https://rentry.co/ghostsnest)ㅤㅤ[prns page](https://en.pronouns.page/@silksong)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤmultifandom　ㅤㅤ♪　ㅤㅤfrqs open !!　₊　
