@@ -4,7 +4,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://ghostsnest.atabook.org)ㅤㅤ[rentry](https://rentry.co/ghostsnest)ㅤㅤ[prns page](https://en.pronouns.page/@silksong)
+ㅤㅤㅤㅤㅤ  ㅤ[atabook](https://ghostsnest.atabook.org)ㅤㅤ[rentry](https://rentry.co/ghostsnest)ㅤㅤ[prns page](https://en.pronouns.page/@silksong)ㅤㅤ[typology](https://ghoststypo.straw.page)ㅤㅤ[alt](https://github.com/sunsnest)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤmultifandom　ㅤㅤ♪　ㅤㅤfrqs open !!　₊　
