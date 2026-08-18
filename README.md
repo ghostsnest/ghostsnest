@@ -1,3 +1,6 @@
+ㅤㅤㅤㅤㅤ  ㅤwarning to my new mcu oomfs i just started consuming more content of it like the comics and stuff so please
+ㅤㅤㅤㅤㅤ  ㅤavoid spoilers when interacting with me ! (i just watched the movies ever since i was a kid) im curently getting
+ㅤㅤㅤㅤㅤ  ㅤmore into the first xmen series and comics ^_^
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" src="https://i.postimg.cc/vmbxn5Yx/820-Sem-Titulo-20260429164522.png">
 
