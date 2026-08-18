@@ -1,5 +1,6 @@
-ㅤㅤㅤㅤㅤ  ㅤwarning to my new mcu oomfs please avoid spoilers about the comics and stuff (esp if its from xmen)
-
+ㅤㅤㅤㅤㅤ  ㅤwarning to my new marvel oomfs please avoid spoilers to me about the comics and stuff
+ㅤㅤㅤㅤㅤ  ㅤi've only watched the movies my whole life and now i decided to read and watch xmen!!
+ㅤㅤㅤㅤㅤ  ㅤand i love gambit a lot
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" src="https://i.postimg.cc/vmbxn5Yx/820-Sem-Titulo-20260429164522.png">
 
 
