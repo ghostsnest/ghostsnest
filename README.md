@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ  ㅤ[atabook](https://ghostsnest.atabook.org)ㅤㅤ[fluffle](https://fluffle.cc/selfpreservation7)ㅤㅤ[prns page](https://en.pronouns.page/@silksong)ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ 
-ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤ[typology](https://ghoststypo.straw.page)ㅤ  [kinlist](https://fluffle.cc/ghostself)ㅤㅤ[alt](https://github.com/sunsnest)
+ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤ[typology](https://ghoststypo.straw.page)ㅤ  [strawpage](https://ghostsnest.straw.page)ㅤㅤ[alt](https://github.com/sunsnest)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤmultifandom　ㅤㅤ♪　ㅤㅤfrqs open !!　₊　
