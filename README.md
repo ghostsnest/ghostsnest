@@ -13,6 +13,7 @@
 <td style="vertical-align: top;">
 <p align="center"> $\color{#db1a3d}{\textsf{gambit}}$ $\color{#d6204e}{\textsf{of}}$ $\color{#d10f3f}{\textsf{pony}}$ $\color{#ba0734}{\textsf{town}}$
 <p align="center">$\color{#b01239}{\textsf{18+ iwc}}$ $\color{#a3082f}{\textsf{-14 dni}}$
+ <p align="center">$\color{#b01239}{\textsf{!! wip !!}}$
  </table>
 <br><br>
  
