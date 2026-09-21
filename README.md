@@ -13,9 +13,13 @@
         <td style="vertical-align: top;">
 <img width=250 src = "https://cdn.phototourl.com/free/2026-09-21-403aeb21-959b-4435-88aa-f812fdb9df87.png" />
 <td style="vertical-align: top;">
-<p align="center"> $\color{#db1a3d}{\textsf{gambit}}$ $\color{#d6204e}{\textsf{of}}$ $\color{#d10f3f}{\textsf{pony}}$ $\color{#ba0734}{\textsf{town}}$
-<p align="center">$\color{#b01239}{\textsf{18+ iwc}}$ $\color{#a3082f}{\textsf{-14 dni}}$
- <p align="center">$\color{#b01239}{\textsf{!! wip !!}}$
+ <p align="center"> $\color{#f7194d}{\textsf{( ˶ˆᗜˆ˵ )}}$
+<p align="center"> $\color{#d91a47}{\textsf{   entp 7w8   ⊹  ‎ ‎tken   ‎ ‎ᧆ♡  ‎ ‎ @ j ‎ ‎ ֹ    ♪}}$
+<p align="center"> $\color{#ba143b}{\textsf{꒰꒰  5teen ‎ ‎ ‎੭ᰍ ‎ ‎ ‎+18 'nd -13 iwec 𓂂 }}$
+ <p align="center">$\color{#a11233}{\textsf{　➳　　artist ‎ 𓏻 ‎ designer ‎ 𓏻 ‎ pin maker}}$
+   <p align="center">$\color{#87102c}{\textsf{ ࣪ ◟ ͜ ׁ   c+h heavy enc ‎ , ‎  w2i always ༷ ა}}$
+    <p align="center">$\color{#660b20}{\textsf{   ꒰  𓈒 ׁ    check sites byi // sign ata/straw !!  𓈒 ༷}}$
+  <p align="center">$\color{#6e0c23}{\textsf{𓎢𓎟}}$
  </table>
 <br><br>
 
