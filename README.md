@@ -18,7 +18,7 @@
 <p align="center"> $\color{#ba143b}{\textsf{꒰꒰  5teen ‎ ‎ ‎੭ᰍ ‎ ‎ ‎+18 'nd -13 iwec 𓂂 }}$
  <p align="center">$\color{#a11233}{\textsf{　➳　　artist ‎ 𓏻 ‎ designer ‎ 𓏻 ‎ pin maker}}$
    <p align="center">$\color{#87102c}{\textsf{ ࣪ ◟ ͜ ׁ   c+h heavy enc ‎ , ‎  w2i always ༷ ა}}$
-    <p align="center">$\color{#660b20}{\textsf{   ꒰  𓈒 ׁ    check sites byi // sign ata/straw !!  𓈒 ༷}}$
+    <p align="center">$\color{#660b20}{\textsf{ ꒰ 𓏼  ͡ ֪   check sites byi //‎ bmf guys..  𓈒 ༷}}$
   <p align="center">$\color{#6e0c23}{\textsf{𓎢𓎟}}$
  </table>
 <br><br>
