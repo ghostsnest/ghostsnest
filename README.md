@@ -1,4 +1,4 @@
-<p align=center><img width="1000" height="400" src=https://cdn.phototourl.com/free/2026-09-21-19948891-6ca8-4606-ae02-832601583fbc.png />
+<p align=center><img width="1000" height="400" src=https://i.postimg.cc/G3KyqYqv/928-Sem-Titulo-20261004164038.png />
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=ghostsnest&style=flat-square&color=9E3150&label=♠  />
 <br><br>
